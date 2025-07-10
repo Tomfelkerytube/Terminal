@@ -1,1 +1,1 @@
-Crosofts Terminal https://dellcrosoft.weebly.com Still Not Avaiable In Weebly Crosoft Website Only In Github.
+Crosofts Terminal https://dellcrosoft.weebly.com Is Avaiable In Weebly Crosoft Website And In Github.
